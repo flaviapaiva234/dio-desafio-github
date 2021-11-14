@@ -1,4 +1,4 @@
-# Receita de Brigadeiro
+# Receitas de Sobremesas
 Como fazer um Brigadeiro
 
 ## Links uteis de receitas de chocolate
