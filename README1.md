@@ -1,5 +1,5 @@
 # Receitas de Sobremesas
-Como fazer um Brigadeiro
+Como fazer um Brigadeiro com simples alguns passos
 
 
 ## Links uteis de Sobremesas
